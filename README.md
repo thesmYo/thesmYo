@@ -3,8 +3,9 @@
 yeah, so basically idfk how to make read me interesting.. heh.
 
 # PLEASEE INT, I'm so lonely in pt
+![image alt](https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif)
 
-![image alt](
+![image alt](https://i.pinimg.com/736x/44/bb/ea/44bbea7404801a36b420d18a4773aaa2.jpg)
 
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
