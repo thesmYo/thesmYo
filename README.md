@@ -2,6 +2,8 @@
 
 yeah, so basically idfk how to make read me interesting.. heh.
 
+- some info: I'm often in pt just to be offtab so i recommend w2i but I often do check pt when I can, I'm a lil curious by what's going on
+
 # PLEASEE INT, I'm so lonely in pt
 ![image alt](https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif)
 
