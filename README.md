@@ -1,4 +1,10 @@
-## Hi there 👋
+![profileviews](https://komarev.com/ghpvc/?username=thesmYo&color=3f334b)
+
+yeah, so basically idfk how to make read me interesting.. heh.
+
+# PLEASEE INT, I'm so lonely in pt
+
+![image alt](
 
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
