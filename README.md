@@ -2,7 +2,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
-yeah, so basically idfk how to make read me interesting.. heh.
 
 - some info: I'm often in pt just to be offtab so i recommend w2i but I often do check pt when I can, I'm a lil curious by what's going on
 
