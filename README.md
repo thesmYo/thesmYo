@@ -6,6 +6,8 @@
 
 - some info of me when i'm in pt: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time
 
+![image alt](https://64.media.tumblr.com/e3641658719b71812b7195d479bf57aa/dc4189d05dad86ae-47/s100x200/f6bb291183caa770eaa5864eae5316a65ad79b28.pnj)
+
 # PLEASEE INT, I'm so lonely in pt
 ![image alt](https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif)
 
