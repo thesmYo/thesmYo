@@ -1,4 +1,4 @@
-![image alt](https://64.media.tumblr.com/efac8f49d7c9191fbc073e4cc697a787/4fc7571dcd617d8d-2a/s400x600/ca54ae3329bd6bfc05758c053e62ca676b0d4a10.gifv)
+![image alt](https://64.media.tumblr.com/ddcbafbbcb083003b376f4192675b22c/4fc7571dcd617d8d-a8/s400x600/9fedd2ee729f32e070aa84a6fc65967ba8183f6b.gifv)
 
 ![profileviews](https://komarev.com/ghpvc/?username=thesmYo&color=3f334b)
 
@@ -10,8 +10,9 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 <sub>- some info of me when i'm in pt: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
 
 ![image alt](https://64.media.tumblr.com/e3641658719b71812b7195d479bf57aa/dc4189d05dad86ae-47/s100x200/f6bb291183caa770eaa5864eae5316a65ad79b28.pnj)
-![image alt](https://adriansblinkiecollection.neocities.org/stamps/b66.gif)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/f36.png)
+![image alt](https://adriansblinkiecollection.neocities.org/stamps/b66.gif)
+![image alt](https://64.media.tumblr.com/ff6e86f33737257bc0e7eddd300fa348/ce3f4b34460550f5-61/s100x200/e2cbaa788e214eef1b1fbfa4d47f81b81dd930f9.pnj)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/c11.gif)
 ![image alt](https://camo.githubusercontent.com/dc6a8cc6bf7c681b26df1ff8e06a7268520793008f1ab04bc3b429812d19d5af/68747470733a2f2f66696c65732e636174626f782e6d6f652f7234733164362e676966)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/d18.gif)
