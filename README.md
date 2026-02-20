@@ -7,7 +7,7 @@
 $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to}}$
 https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$
 
-<sub>- some info of me when i'm in pt: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time
+<sub>- some info of me when i'm in pt: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
 
 ![image alt](https://64.media.tumblr.com/e3641658719b71812b7195d479bf57aa/dc4189d05dad86ae-47/s100x200/f6bb291183caa770eaa5864eae5316a65ad79b28.pnj)
 ![image alt](https://camo.githubusercontent.com/d414dc3147c6da4128d40d3a6611122133da0d76551e6c032b8e2328b89a7240/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f35613935346436653434376266613833306238373031323565336664306564392f613332393864323333666165626237612d30382f73313030783230302f303337623632333538306139656238613138343264343132303930613132376435333236663763322e67696676)
