@@ -4,8 +4,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
-$\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to}}$
-https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$
+$\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
+[playlist](https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$)
 
 <sub>- some info of me when i'm in pt: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
 
@@ -18,8 +18,9 @@ https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$
 
 ![Description](https://media1.tenor.com/m/SzaTzyILocsAAAAC/beau-lego-dreamzzz.gif)
 
-(wip) ｌｉｎｋｓ
-https://pronouns.cc/@ThesmYo | 
+*ｌｉｎｋｓ*
+
+[pronouns.cc](https://pronouns.cc/@ThesmYo)   [straw](https://thatsthey.straw.page)   [Pinterest](https://pin.it/3kXcppyPs)   [Tiktok](https://www.tiktok.com/@skalesisthebff)
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
