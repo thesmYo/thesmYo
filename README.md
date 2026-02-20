@@ -18,6 +18,8 @@ https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$
 
 ![Description](https://media1.tenor.com/m/SzaTzyILocsAAAAC/beau-lego-dreamzzz.gif)
 
+(wip) ｌｉｎｋｓ
+https://pronouns.cc/@ThesmYo | 
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
