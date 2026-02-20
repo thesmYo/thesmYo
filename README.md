@@ -15,6 +15,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/c11.gif)
 ![image alt](https://camo.githubusercontent.com/dc6a8cc6bf7c681b26df1ff8e06a7268520793008f1ab04bc3b429812d19d5af/68747470733a2f2f66696c65732e636174626f782e6d6f652f7234733164362e676966)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/d18.gif)
+
 ![image alt](https://camo.githubusercontent.com/d414dc3147c6da4128d40d3a6611122133da0d76551e6c032b8e2328b89a7240/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f35613935346436653434376266613833306238373031323565336664306564392f613332393864323333666165626237612d30382f73313030783230302f303337623632333538306139656238613138343264343132303930613132376435333236663763322e67696676)
 ![image alt](https://private-user-images.githubusercontent.com/248498488/530235976-fee0fe1e-6c9b-4fb3-8cb0-26e8af15d0b7.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzE0MzE4NzQsIm5iZiI6MTc3MTQzMTU3NCwicGF0aCI6Ii8yNDg0OTg0ODgvNTMwMjM1OTc2LWZlZTBmZTFlLTZjOWItNGZiMy04Y2IwLTI2ZThhZjE1ZDBiNy5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMjE4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDIxOFQxNjE5MzRaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0zOGMyYmU5ZTEwNDgxZmQxZDBiOWVmMjc5MzNjMjg0ZDRiZTY1MTZkYmFlNzgyYmU3ZjlhNTE3NzMwODFmYmRmJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.xVyiZ3xwZtvbeT00kL33gEBVtUyXWGeRVAGMSOx5WEs)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/d3.gif)
@@ -30,9 +31,9 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 
 ![Description](https://media1.tenor.com/m/SzaTzyILocsAAAAC/beau-lego-dreamzzz.gif)
 
-*ｌｉｎｋｓ*
+$\normalsize\color{#4E4985}{\textsf{ｌｉｎｋｓ}}$
 
-[pronouns.cc](https://pronouns.cc/@ThesmYo)   [straw](https://thatsthey.straw.page)   [Pinterest](https://pin.it/3kXcppyPs)   [Tiktok](https://www.tiktok.com/@skalesisthebff)
+[pronouns.cc](https://pronouns.cc/@ThesmYo) | [straw](https://thatsthey.straw.page) | [Pinterest](https://pin.it/3kXcppyPs) | [Tiktok](https://www.tiktok.com/@skalesisthebff)
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
