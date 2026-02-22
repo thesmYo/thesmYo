@@ -38,7 +38,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 
 $\normalsize\color{#4E4985}{\textsf{ｌｉｎｋｓ}}$
 
-[straw](https://thatsthey.straw.page) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/eydnzxfh) | [pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs)
+[Straw](https://thatsthey.straw.page) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/eydnzxfh) | [Pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs)
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
