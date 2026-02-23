@@ -42,11 +42,12 @@ $\normalsize\color{#4E4985}{\textsf{𝘴𝘰𝘮𝘦 𝘰𝘧 𝘮𝘺 𝘪𝘯�
 ![image alt](https://64.media.tumblr.com/9c8966e1087a7449416773b3578dc776/d288272d627f6122-8e/s100x200/e8ae669875d4a655ec704cc48a75db1f123107d7.pnj)
 ![image alt](https://64.media.tumblr.com/f90d7163f8f6bbf7f8e8975f198330bb/7f9e42b6559e3926-f1/s100x200/7df1de6cd5f0f178aa0718e440a4850a7f444d0c.gifv)
 
-![image alt](https://64.media.tumblr.com/4dc38bbc27075e6af6410fa10a8ddf90/9ff0c6c764276d0b-c7/s100x200/37ac41829d0b751b5d89471a334ef45c54b1fc0e.gifv)
+![image alt](https://64.media.tumblr.com/87431ca9581f9e08b805fcd583d4f903/ac873ae411fb81b7-f8/s100x200/bb5b7b36ca0608cd949c0d65b1690bf017003d57.pnj)
 ![image alt](https://64.media.tumblr.com/78656375d870e8b018d4456a768d9c11/434736037a2c30fc-46/s100x200/d90a553c15ae129bebf8a0495ac127012e7cdf65.pnj)
 ![image alt](https://64.media.tumblr.com/a5ef60843a1c895458050c302611f166/819d9e7133315662-1d/s100x200/abe54e85b1b889f17825f34bdfaedeb8bd4fef31.pnj)
 ![image alt](https://64.media.tumblr.com/22ae8d215edb616b2327e133efd4543d/a9fc76ebee56f7cc-20/s100x200/58e2e79e8cd5980d49b6d7e76134beed8d5b309c.gifv)
 ![image alt](https://64.media.tumblr.com/4fa35482eac445d39e09a127d73c9071/68d30b395d07871b-3e/s100x200/227194b5a429f5d036b2063c7529ce56c8cb5a4a.gifv)
+![image alt](https://64.media.tumblr.com/a6da67b9fb056587ef72f8e4646d1c62/c8544a04f9c41d13-31/s100x200/bdf387761a13e46581f2e2414ce8a2e2891347ae.pnj)
 
 $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 / 𝚂𝚝𝚊𝚖𝚙𝚜 ↓}}$
 
