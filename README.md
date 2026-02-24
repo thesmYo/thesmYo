@@ -48,6 +48,8 @@ $\normalsize\color{#4E4985}{\textsf{𝘴𝘰𝘮𝘦 𝘰𝘧 𝘮𝘺 𝘪𝘯�
 ![image alt](https://64.media.tumblr.com/22ae8d215edb616b2327e133efd4543d/a9fc76ebee56f7cc-20/s100x200/58e2e79e8cd5980d49b6d7e76134beed8d5b309c.gifv)
 ![image alt](https://64.media.tumblr.com/4fa35482eac445d39e09a127d73c9071/68d30b395d07871b-3e/s100x200/227194b5a429f5d036b2063c7529ce56c8cb5a4a.gifv)
 ![image alt](https://64.media.tumblr.com/a6da67b9fb056587ef72f8e4646d1c62/c8544a04f9c41d13-31/s100x200/bdf387761a13e46581f2e2414ce8a2e2891347ae.pnj)
+![image alt](https://64.media.tumblr.com/7c85db9f4bbe685b9bfcf0cc18594e4f/61f17dfe898e2c87-39/s100x200/72fe731fe672d83b633e6cbae2660d54b2177316.gifv)
+
 
 $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 / 𝚂𝚝𝚊𝚖𝚙𝚜 ↓}}$
 
@@ -58,7 +60,6 @@ $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗�
 ![image alt](https://64.media.tumblr.com/eda93aec2ed38c7a56f09474a8f1029b/8a1eee0c9074a435-f8/s100x200/459d0d58def19abddeb4b65345d19920407962eb.gifv)
 ![image alt](https://64.media.tumblr.com/3dc4a24ecd272dc261729bc01fc618d1/8a1eee0c9074a435-f6/s100x200/42c9e79f8590add39cf174815c9b5abe614b124a.gifv)
 ![image alt](https://64.media.tumblr.com/20efa2cf511fbd2fb3ebd7174a483d9c/8a1eee0c9074a435-11/s100x200/f9ae7dae256b2eec3a9f501251af6b0a3806a07f.gifv)
-![image alt](https://64.media.tumblr.com/7c85db9f4bbe685b9bfcf0cc18594e4f/61f17dfe898e2c87-39/s100x200/72fe731fe672d83b633e6cbae2660d54b2177316.gifv)
 
 #
 
