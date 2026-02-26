@@ -81,7 +81,7 @@ $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗�
 
 $\normalsize\color{#4E4985}{\textsf{ｌｉｎｋｓ}}$
 
-[Straw](https://thatsthey.straw.page) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/eydnzxfh) | [Pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs) | [Tumblr](https://www.tumblr.com/unknowery68?source=share)
+[Straw](https://thatsthey.straw.page) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs) | [Tumblr](https://www.tumblr.com/unknowery68?source=share)
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
