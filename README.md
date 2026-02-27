@@ -63,6 +63,7 @@ $\normalsize\color{#4E4985}{\textsf{𝘴𝘰𝘮𝘦 𝘰𝘧 𝘮𝘺 𝘪𝘯�
 ![image alt](https://64.media.tumblr.com/b2267c755349de9b66c770c320a90dfc/0a6faef86a9aff65-bd/s100x200/c7c0a7444bcbf55e3e6ae197d88a17e38640c368.gifv)
 ![image alt](https://64.media.tumblr.com/d19caf2f3790cee8d4d7ffdeb5736b14/e3fda2e1bcb18fde-0f/s100x200/0c21d2483e376b501c2eb6954374a0883c308782.gifv)
 ![image alt](https://64.media.tumblr.com/f31f77cdcad98cbcc01e6e89549ec5de/bdac72a65f5bf590-26/s100x200/9dfce9e012b94df1b55e13469840b13eadbceaa6.gifv)
+![image alt](https://camo.githubusercontent.com/cf9c06070c67bfc6b16c50a47987389c42f0189d4e1cdcbc9214e80c8a673cd9/68747470733a2f2f692e706f7374696d672e63632f44305a4a544b5a482f756e64657274616c652e676966)
 
 $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 / 𝚂𝚝𝚊𝚖𝚙𝚜 ↓}}$
 
