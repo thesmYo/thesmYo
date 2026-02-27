@@ -2,10 +2,16 @@
 
 ![profileviews](https://komarev.com/ghpvc/?username=thesmYo&color=3f334b)
 
+$\normalsize\color{#4E4985}{\textsf{ｌｉｎｋｓ}}$
+
+[Straw](https://thatsthey.straw.page) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs) | [Tumblr](https://www.tumblr.com/unknowery68?source=share)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ 
 [playlist](https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$) ![profileviews](https://64.media.tumblr.com/9b98a4ad8dce89dd408179cdd8d4f650/259445e54e5c3837-e4/s75x75_c1/298b193aa277ed528ad14776eed9b76b011f221f.gifv)
+
+#
 
 <sub>- some info of me when i'm in pt: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
 
@@ -84,10 +90,6 @@ $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗�
 ![image alt](https://64.media.tumblr.com/11377a6af25ba09091eddff8968378b9/a4c71817eda70ea5-8d/s500x750/996adea46ab50ecb423d387b6eac854b00b9f193.gifv)
 
 ![Description](https://media1.tenor.com/m/SzaTzyILocsAAAAC/beau-lego-dreamzzz.gif)
-
-$\normalsize\color{#4E4985}{\textsf{ｌｉｎｋｓ}}$
-
-[Straw](https://thatsthey.straw.page) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs) | [Tumblr](https://www.tumblr.com/unknowery68?source=share)
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
