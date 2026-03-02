@@ -13,7 +13,12 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 
 #
 
-<sub>- some info of me when i'm in pt: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
+<sub> ABOUT ME:
+
+![image alt](https://64.media.tumblr.com/975c356c4a61db2451aa0037479ff71b/9c64694a9403955f-28/s100x200/6a7b165f8494e91cb7fe28c6dce75b783857fb43.pnj)
+![image alt](https://64.media.tumblr.com/08336a3acb01e6c400f7f518fa2e0b5f/4e0adfecf4c80568-ff/s100x200/efeefa616e25d822999c8fb20e2e6a132c5116c3.pnj)
+
+<sub>- INFO WHEN I'M IN PT: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
 
 #
 
@@ -64,6 +69,8 @@ $\normalsize\color{#4E4985}{\textsf{𝘴𝘰𝘮𝘦 𝘰𝘧 𝘮𝘺 𝘪𝘯�
 ![image alt](https://64.media.tumblr.com/d19caf2f3790cee8d4d7ffdeb5736b14/e3fda2e1bcb18fde-0f/s100x200/0c21d2483e376b501c2eb6954374a0883c308782.gifv)
 ![image alt](https://64.media.tumblr.com/f31f77cdcad98cbcc01e6e89549ec5de/bdac72a65f5bf590-26/s100x200/9dfce9e012b94df1b55e13469840b13eadbceaa6.gifv)
 ![image alt](https://camo.githubusercontent.com/cf9c06070c67bfc6b16c50a47987389c42f0189d4e1cdcbc9214e80c8a673cd9/68747470733a2f2f692e706f7374696d672e63632f44305a4a544b5a482f756e64657274616c652e676966)
+![image alt](https://64.media.tumblr.com/dfa1d7444f5eadf9029b6480b99846eb/37bb0d0ffc192c90-7a/s100x200/46b8cd8a4a285708023e24913a820903c70e47a5.gifv)
+![image alt](https://64.media.tumblr.com/79b8f21b02e5a2988315da1d55e1f9e7/0d9c08ed8003adc6-f2/s100x200/8e63f14ceca74ecaacc5a1183b187f6d9fbaa54b.pnj)
 
 $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 / 𝚂𝚝𝚊𝚖𝚙𝚜 ↓}}$
 
