@@ -1,4 +1,4 @@
-![image alt](https://64.media.tumblr.com/ddcbafbbcb083003b376f4192675b22c/4fc7571dcd617d8d-a8/s400x600/9fedd2ee729f32e070aa84a6fc65967ba8183f6b.gifv)
+![image alt](https://64.media.tumblr.com/b8ef858c35adbcf41bbaf93baec8e4dc/823ad48636965bea-69/s540x810/44cd4e02cdf6ac21854fe2e81308ee4b487f5638.gifv)
 
 ![profileviews](https://komarev.com/ghpvc/?username=thesmYo&color=3f334b)
 
@@ -99,6 +99,8 @@ $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗�
 ![image alt](https://64.media.tumblr.com/11377a6af25ba09091eddff8968378b9/a4c71817eda70ea5-8d/s500x750/996adea46ab50ecb423d387b6eac854b00b9f193.gifv)
 
 ![Description](https://media1.tenor.com/m/SzaTzyILocsAAAAC/beau-lego-dreamzzz.gif)
+
+![image alt](https://64.media.tumblr.com/5bdfa850b91d4f9924a67b08de60a4c6/b15d23a765658ea4-ca/s400x600/9f1a8b27c78179302870e016ebf0e9ee946bc138.pnj)
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
