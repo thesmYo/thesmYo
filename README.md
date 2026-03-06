@@ -23,15 +23,6 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 
 #
 
-![image alt](https://64.media.tumblr.com/e3641658719b71812b7195d479bf57aa/dc4189d05dad86ae-47/s100x200/f6bb291183caa770eaa5864eae5316a65ad79b28.pnj)
-![image alt](https://adriansblinkiecollection.neocities.org/stamps/f36.png)
-![image alt](https://adriansblinkiecollection.neocities.org/stamps/b66.gif)
-![image alt](https://64.media.tumblr.com/ff6e86f33737257bc0e7eddd300fa348/ce3f4b34460550f5-61/s100x200/e2cbaa788e214eef1b1fbfa4d47f81b81dd930f9.pnj)
-![image alt](https://adriansblinkiecollection.neocities.org/stamps/c11.gif)
-![image alt](https://adriansblinkiecollection.neocities.org/stamps/d18.gif)
-![image alt](https://adriansblinkiecollection.neocities.org/buttons/a15.gif)
-![image alt](https://adriansblinkiecollection.neocities.org/buttons/a104.jpg)
-
 $\normalsize\color{#4E4985}{\textsf{𝘴𝘰𝘮𝘦 𝘰𝘧 𝘮𝘺 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴 ↓
 }}$
 
