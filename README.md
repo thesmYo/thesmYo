@@ -86,6 +86,14 @@ $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗�
 ![image alt](https://64.media.tumblr.com/baf28f8957588141c3c9490867968505/f08dec118e0fbf89-61/s100x200/9c5276bf396828f2f05010ffcaa51e92ef6fe564.pnj)
 ![image alt](https://64.media.tumblr.com/769642bb3cf00645e17f9dca85286807/f08dec118e0fbf89-c5/s100x200/bb8a2033a8d38ab167b367488f19ab1bf8478bdb.pnj)
 ![image alt](https://64.media.tumblr.com/44a15c93046699979eb9e58425c94a1c/f08dec118e0fbf89-24/s100x200/d783350b195586b9a8ce3595e8e67abb172534d7.pnj)
+![image alt](https://64.media.tumblr.com/cbcf4a8b9fb46fa93f2dd48fc8e32671/4ee46a5e57e1845b-8d/s100x200/8e68f65cf10f5f95aed8c56da1308d56abb02b9c.pnj)
+
+![image alt](https://64.media.tumblr.com/08aa2a960e2f7489982b5035dcb0bb2c/4ee46a5e57e1845b-3c/s100x200/641fb6fb3995fcfa179144e5658fdb85a03b2635.pnj)
+![image alt](https://64.media.tumblr.com/8d05ae50264589fac19261badcda61bf/4ee46a5e57e1845b-8a/s100x200/95f15e159ba629c131ab077b0fb4dd3c5443730d.pnj)
+![image alt](https://64.media.tumblr.com/ac1b14d5a8801e8db99715816d826939/4ee46a5e57e1845b-9b/s100x200/daf1507b8dae96015ed8974c0dcb3abe78313736.pnj)
+![image alt](https://64.media.tumblr.com/391081e41755d58604aa6215dc3e1c19/4ee46a5e57e1845b-a0/s100x200/919d4cb1465e0361acbba13b655d7a8fd53adc99.pnj)
+![image alt](https://64.media.tumblr.com/ed620522da098219f37d8508a1fe6f31/4ee46a5e57e1845b-2e/s100x200/f3876b90b136a95052e3c59037a38a238cfe238e.pnj)
+![image alt](https://64.media.tumblr.com/ba11e31e534cce9e809bd93294e00af5/4ee46a5e57e1845b-f4/s100x200/b9a8b7cd9f0a5a79b6b344042ea7175da9850822.pnj)
 
 #
 
