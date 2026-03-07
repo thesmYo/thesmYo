@@ -19,7 +19,10 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 ![image alt](https://64.media.tumblr.com/08336a3acb01e6c400f7f518fa2e0b5f/4e0adfecf4c80568-ff/s100x200/efeefa616e25d822999c8fb20e2e6a132c5116c3.pnj)
 ![image alt](https://github.com/thesmYo/thesmYo/blob/main/finnishflag.png)
 
+<sub>- You may know me as My persona, Yö. who has done Lego edits on [Tiktok](https://www.tiktok.com/@skalesisthebff). I've also hosted Guess the cosplay and Find the skin.
+
 <sub>- INFO WHEN I'M IN PT: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
+
 
 #
 
