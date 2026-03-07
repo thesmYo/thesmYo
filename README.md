@@ -19,7 +19,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 ![image alt](https://64.media.tumblr.com/08336a3acb01e6c400f7f518fa2e0b5f/4e0adfecf4c80568-ff/s100x200/efeefa616e25d822999c8fb20e2e6a132c5116c3.pnj)
 ![image alt](https://github.com/thesmYo/thesmYo/blob/main/finnishflag.png)
 
-- You may know me as My persona, Yö. who has done Lego edits on [Tiktok](https://www.tiktok.com/@skalesisthebff). Or as Night Night Because of my Patreon which I used on my skins before.
+- You may know me as My persona, Yö. who has done Lego edits on [Tiktok](https://www.tiktok.com/@skalesisthebff). Or as Night Night Because of my [Patreon](https://www.patreon.com/cw/u79229172) which I used on my skins before I changed to Github.
 
 - I've also hosted Guess the cosplay and Find the skin
 
