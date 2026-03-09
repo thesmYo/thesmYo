@@ -27,7 +27,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 
 <sub>- Skins you may know me as:
 
-<img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%20_%20MY%20PERSONA%20_%20DNC%F0%9F%9A%AB-stand-padded-ponyplush-4x.png" alt="Sample Image" width="120" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%2C%20SONA%20_RMK%20_DNC%F0%9F%9A%AB%2C%20sign%20Ata-stand-padded-4x%20(2).png" alt="Sample Image" width="100" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Clover%20hunting%20%F0%9F%8D%80%20_%20sign%20Ata-stand-padded-toy450-4x.png" alt="Sample Image" width="100" height="150"> 
+<img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%20_%20MY%20PERSONA%20_%20DNC%F0%9F%9A%AB-stand-padded-ponyplush-4x.png" alt="Sample Image" width="120" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%2C%20SONA%20_RMK%20_DNC%F0%9F%9A%AB%2C%20sign%20Ata-stand-padded-4x%20(2).png" alt="Sample Image" width="100" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-'%20Who%20am%20I_%20'%20%F0%9F%94%A7%20%E2%9C%A7%20_%20DNC%F0%9F%9A%AB-stand-padded-toy7-4x.png" alt="Sample Image" width="120" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Clover%20hunting%20%F0%9F%8D%80%20_%20sign%20Ata-stand-padded-toy450-4x.png" alt="Sample Image" width="115" height="150"> 
 
 
 #
