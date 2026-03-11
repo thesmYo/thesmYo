@@ -3,6 +3,7 @@
 $\normalsize\color{#4E4985}{\textsf{ｌｉｎｋｓ}}$
 
 [Straw](https://thesmyo.straw.page/) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs) | [Tumblr](https://www.tumblr.com/unknowery68?source=share) | [Carrd.co](https://thesmyo.carrd.co/)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ 
