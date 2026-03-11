@@ -1,7 +1,5 @@
 ![image alt](https://64.media.tumblr.com/b8ef858c35adbcf41bbaf93baec8e4dc/823ad48636965bea-69/s540x810/44cd4e02cdf6ac21854fe2e81308ee4b487f5638.gifv)
 
-![profileviews](https://komarev.com/ghpvc/?username=thesmYo&color=3f334b)
-
 $\normalsize\color{#4E4985}{\textsf{ｌｉｎｋｓ}}$
 
 [Straw](https://thesmyo.straw.page/) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs) | [Tumblr](https://www.tumblr.com/unknowery68?source=share) | [Carrd.co](https://thesmyo.carrd.co/)
