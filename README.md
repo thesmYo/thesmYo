@@ -1,17 +1,17 @@
 ![image alt](https://64.media.tumblr.com/b8ef858c35adbcf41bbaf93baec8e4dc/823ad48636965bea-69/s540x810/44cd4e02cdf6ac21854fe2e81308ee4b487f5638.gifv)
 
-$\normalsize\color{#4E4985}{\textsf{ｌｉｎｋｓ}}$
+$\normalsize\color{#3d4cae}{\textsf{ｌｉｎｋｓ}}$
 
 [Straw](https://thesmyo.straw.page/) |  [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Pronouns.cc](https://pronouns.cc/@ThesmYo) | [Tiktok](https://www.tiktok.com/@skalesisthebff) | [Pinterest](https://pin.it/3kXcppyPs) | [Tumblr](https://www.tumblr.com/unknowery68?source=share)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
-$\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ 
-[playlist](https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$) ![profileviews](https://64.media.tumblr.com/9b98a4ad8dce89dd408179cdd8d4f650/259445e54e5c3837-e4/s75x75_c1/298b193aa277ed528ad14776eed9b76b011f221f.gifv)
+$\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [playlist](https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$) ![profileviews](https://64.media.tumblr.com/9b98a4ad8dce89dd408179cdd8d4f650/259445e54e5c3837-e4/s75x75_c1/298b193aa277ed528ad14776eed9b76b011f221f.gifv)
 
 #
 
-ＡＢＯＵＴ ＭＥ：
+<details>
+<summary> $${\color{#3d4cae}  \space ＡＢＯＵＴ \space ＭＥ： \space }$$ </summary>
 
 ![image alt](https://64.media.tumblr.com/975c356c4a61db2451aa0037479ff71b/9c64694a9403955f-28/s100x200/6a7b165f8494e91cb7fe28c6dce75b783857fb43.pnj)
 ![image alt](https://64.media.tumblr.com/08336a3acb01e6c400f7f518fa2e0b5f/4e0adfecf4c80568-ff/s100x200/efeefa616e25d822999c8fb20e2e6a132c5116c3.pnj)
@@ -27,11 +27,12 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$
 
 <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%20_%20MY%20PERSONA%20_%20DNC%F0%9F%9A%AB-stand-padded-ponyplush-4x.png" alt="Sample Image" width="120" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%2C%20SONA%20_RMK%20_DNC%F0%9F%9A%AB%2C%20sign%20Ata-stand-padded-4x%20(2).png" alt="Sample Image" width="100" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-'%20Who%20am%20I_%20'%20%F0%9F%94%A7%20%E2%9C%A7%20_%20DNC%F0%9F%9A%AB-stand-padded-toy7-4x.png" alt="Sample Image" width="120" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Clover%20hunting%20%F0%9F%8D%80%20_%20sign%20Ata-stand-padded-toy450-4x.png" alt="Sample Image" width="115" height="150"> 
 
+</details>
 
 #
 
-$\normalsize\color{#4E4985}{\textsf{𝘴𝘰𝘮𝘦 𝘰𝘧 𝘮𝘺 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴 ↓
-}}$
+<details>
+<summary> $${\color{#7a73c3} \space 𝘴𝘰𝘮𝘦 \space 𝘰𝘧 \space 𝘮𝘺 \space 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴 ↓ \space }$$ </summary>
 
 ![image alt](https://camo.githubusercontent.com/d414dc3147c6da4128d40d3a6611122133da0d76551e6c032b8e2328b89a7240/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f35613935346436653434376266613833306238373031323565336664306564392f613332393864323333666165626237612d30382f73313030783230302f303337623632333538306139656238613138343264343132303930613132376435333236663763322e67696676)
 ![image alt](https://private-user-images.githubusercontent.com/248498488/530235976-fee0fe1e-6c9b-4fb3-8cb0-26e8af15d0b7.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzE0MzE4NzQsIm5iZiI6MTc3MTQzMTU3NCwicGF0aCI6Ii8yNDg0OTg0ODgvNTMwMjM1OTc2LWZlZTBmZTFlLTZjOWItNGZiMy04Y2IwLTI2ZThhZjE1ZDBiNy5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMjE4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDIxOFQxNjE5MzRaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0zOGMyYmU5ZTEwNDgxZmQxZDBiOWVmMjc5MzNjMjg0ZDRiZTY1MTZkYmFlNzgyYmU3ZjlhNTE3NzMwODFmYmRmJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.xVyiZ3xwZtvbeT00kL33gEBVtUyXWGeRVAGMSOx5WEs)
@@ -76,7 +77,10 @@ $\normalsize\color{#4E4985}{\textsf{𝘴𝘰𝘮𝘦 𝘰𝘧 𝘮𝘺 𝘪𝘯�
 ![image alt](https://64.media.tumblr.com/6a6a66d027218f61a0bc199581ec8a6b/75c8a0aa1f8c508d-b4/s100x200/412c711cd6a9374dc1a733871edc806112573c08.pnj)
 ![image alt](https://64.media.tumblr.com/21c1e8ee4b3e24346a55b2ce34108868/dc066267c7fad99b-6f/s100x200/904a1e210a77b451b862b8be7a572c8f7aec152e.gifv)
 
-$\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 / 𝚂𝚝𝚊𝚖𝚙𝚜 ↓}}$
+</details>
+
+<details>
+<summary> $${\color{#7a73c3} \space 𝙼𝚢 \space 𝚖𝚊𝚍𝚎 \space 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 \space / \space 𝚂𝚝𝚊𝚖𝚙𝚜 \space ↓ \space }$$ </summary>
 
 ![image alt](https://64.media.tumblr.com/f9a18813e5cc64c21b1b6c440480ee89/4afb63e450868104-78/s100x200/b282cd6618871e950e3c091dc6be74d206f2385f.pnj)
 ![image alt](https://64.media.tumblr.com/b177e1a24638fe4f6911c2b2369e5dac/8a1eee0c9074a435-32/s100x200/eec43520f169d8480389151da6eb3522a8df7502.gifv)
@@ -102,6 +106,8 @@ $\normalsize\color{#4E4985}{\textsf{𝙼𝚢 𝚖𝚊𝚍𝚎 𝙱𝚕𝚒𝚗�
 ![image alt](https://64.media.tumblr.com/391081e41755d58604aa6215dc3e1c19/4ee46a5e57e1845b-a0/s100x200/919d4cb1465e0361acbba13b655d7a8fd53adc99.pnj)
 ![image alt](https://64.media.tumblr.com/ed620522da098219f37d8508a1fe6f31/4ee46a5e57e1845b-2e/s100x200/f3876b90b136a95052e3c59037a38a238cfe238e.pnj)
 ![image alt](https://64.media.tumblr.com/ba11e31e534cce9e809bd93294e00af5/4ee46a5e57e1845b-f4/s100x200/b9a8b7cd9f0a5a79b6b344042ea7175da9850822.pnj)
+
+</details>
 
 #
 
