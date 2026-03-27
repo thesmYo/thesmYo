@@ -16,6 +16,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 ![image alt](https://64.media.tumblr.com/975c356c4a61db2451aa0037479ff71b/9c64694a9403955f-28/s100x200/6a7b165f8494e91cb7fe28c6dce75b783857fb43.pnj)
 ![image alt](https://64.media.tumblr.com/08336a3acb01e6c400f7f518fa2e0b5f/4e0adfecf4c80568-ff/s100x200/efeefa616e25d822999c8fb20e2e6a132c5116c3.pnj)
 ![image alt](https://github.com/thesmYo/thesmYo/blob/main/finnishflag.png)
+![image alt](https://adriansblinkiecollection.neocities.org/stamps/b2.gif)
 
 - You may know me as my persona, Yö. who has done Lego edits on [Tiktok](https://www.tiktok.com/@skalesisthebff). Or as Night Night Because of my [Patreon](https://www.patreon.com/profile/creators?u=79315220) which I used on my skins before I changed to Github.
 
@@ -42,7 +43,6 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/e126.png)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/e41.png)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/a7.gif)
-![image alt](https://adriansblinkiecollection.neocities.org/stamps/b2.gif)
 
 ![image alt](https://camo.githubusercontent.com/54952591ed0e95851130ea11968fcf6116aa0b24dc7ff2edf7ca653c99117536/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f37346665643439316236393430313232633566353434373637666639366537632f366134323531346333666663666362662d35342f73313030783230302f393539353264613365363032386562366663333734393635393862633135356563313736356662662e706e6a)
 ![image alt](https://camo.githubusercontent.com/f484fe7eb834ebc53f3b125eb30c662438cfadc2151709c8d1dfada2240323b4/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f35666562613961643036366266633961346533623835376431633731646461342f386135326232636162346636663831612d66652f73313030783230302f303766653334373562346664323962653266326364313037633961386331663936316232323934652e67696676)
