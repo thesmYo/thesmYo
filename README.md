@@ -79,6 +79,10 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 ![image alt](https://64.media.tumblr.com/21c1e8ee4b3e24346a55b2ce34108868/dc066267c7fad99b-6f/s100x200/904a1e210a77b451b862b8be7a572c8f7aec152e.gifv)
 ![image alt](https://64.media.tumblr.com/cdeecbe87bd337db8c1b15823f99dbfa/8b6862644c29e309-24/s100x200/3772f3b52c9973f164ebdddc494ea95d306991af.gifv)
 ![image alt](https://64.media.tumblr.com/d412556a59736e23014cf468e8e57b3c/3f2557cb7a87a01e-22/s250x400/0ae0e19dfed1fe6813c52a6bda263c18406bfd56.gifv)
+![image alt](https://64.media.tumblr.com/ed8b19676ff49714f6a0fd34e66a9f0e/bbca7f1758e2efbb-f7/s100x200/c49aa4d3c062fefc75de597c6e97ccef6fc43c1f.gifv)
+![image alt](https://64.media.tumblr.com/db778da64a60400ccdd86f93e45eab04/47e485eca7a5fe12-35/s100x200/16ba627cd0751d2c17647ca290f7b0b9fb277957.pnj)
+
+![image alt](https://64.media.tumblr.com/abe3f974cbdadeb986c3e7f73ed8a4d9/5ba3085a1cc06b4e-5b/s100x200/36db75d51762b290b2ec8de641cb7639848983d1.gifv)
 
 </details>
 
