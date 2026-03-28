@@ -64,7 +64,6 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 ![image alt](https://64.media.tumblr.com/7c85db9f4bbe685b9bfcf0cc18594e4f/61f17dfe898e2c87-39/s100x200/72fe731fe672d83b633e6cbae2660d54b2177316.gifv)
 ![image alt](https://64.media.tumblr.com/3a6fc50b74a7d9a08788b172fb71a240/bee4b3f750947f20-83/s100x200/84c4828b0c8e9088a08584fbbefdd7067ec4e8f9.pnj)
 
-
 ![image alt](https://64.media.tumblr.com/c50bdf29db30a11b145ffa82f191ed31/3c74d06b377fdc9b-b2/s100x200/97fb2bb90fb707f0ff36f7031c8c90c3a2a1a675.pnj)
 ![image alt](https://64.media.tumblr.com/f2de6cb536d54615a949a6962d281c4b/d9a8dafb3a08856f-d6/s100x200/a9ea26d028b35b83f14092ba010e9a4e4b0f21c4.pnj)
 ![image alt](https://64.media.tumblr.com/b2267c755349de9b66c770c320a90dfc/0a6faef86a9aff65-bd/s100x200/c7c0a7444bcbf55e3e6ae197d88a17e38640c368.gifv)
@@ -78,6 +77,8 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 ![image alt](https://64.media.tumblr.com/bd8f982425cd5b029e320a77802d8c82/8d8807c6f7bc6874-10/s100x200/0f07eeee4e4b91036bf3d188d160aebf98f79b38.pnj)
 ![image alt](https://64.media.tumblr.com/6a6a66d027218f61a0bc199581ec8a6b/75c8a0aa1f8c508d-b4/s100x200/412c711cd6a9374dc1a733871edc806112573c08.pnj)
 ![image alt](https://64.media.tumblr.com/21c1e8ee4b3e24346a55b2ce34108868/dc066267c7fad99b-6f/s100x200/904a1e210a77b451b862b8be7a572c8f7aec152e.gifv)
+![image alt](https://64.media.tumblr.com/cdeecbe87bd337db8c1b15823f99dbfa/8b6862644c29e309-24/s100x200/3772f3b52c9973f164ebdddc494ea95d306991af.gifv)
+![image alt](https://64.media.tumblr.com/d412556a59736e23014cf468e8e57b3c/3f2557cb7a87a01e-22/s250x400/0ae0e19dfed1fe6813c52a6bda263c18406bfd56.gifv)
 
 </details>
 
