@@ -18,9 +18,9 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 ![image alt](https://github.com/thesmYo/thesmYo/blob/main/finnishflag.png)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/b2.gif)
 
-- You may know me as my persona, Yö. who has done Lego edits on [Tiktok](https://www.tiktok.com/@skalesisthebff). Or as Night Night Because of my [Patreon](https://www.patreon.com/profile/creators?u=79315220) which I used on my skins before I changed to Github.
+- You may know me as my persona, Yö. who has done Lego edits on [Tiktok](https://www.tiktok.com/@skalesisthebff). Or as Night Night Because of my [Patreon](https://www.patreon.com/profile/creators?u=79315220) which I used on my skins on pony town, before I changed to Github.
 
-- I've also hosted Guess the cosplay and Find the skin
+- I've hosted on pony town: Guess the cosplay, Find the skin and Fashion roulette → I deleted the skin what with I hosted fashion roulette but hint: it was undertale character...
 
 - INFO: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
 
