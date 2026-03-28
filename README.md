@@ -53,6 +53,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 ![image alt](https://camo.githubusercontent.com/345d51b391fae75e764009005242963d6822e1c52742f384f4fe4d0f2a4ed26c/68747470733a2f2f66696c65732e636174626f782e6d6f652f72623666636f2e6a7067)
 ![image alt](https://64.media.tumblr.com/9c8966e1087a7449416773b3578dc776/d288272d627f6122-8e/s100x200/e8ae669875d4a655ec704cc48a75db1f123107d7.pnj)
 ![image alt](https://64.media.tumblr.com/f90d7163f8f6bbf7f8e8975f198330bb/7f9e42b6559e3926-f1/s100x200/7df1de6cd5f0f178aa0718e440a4850a7f444d0c.gifv)
+![image alt](https://64.media.tumblr.com/0abd0d6b96417613e0d93c3ffc027fc1/f0d7eb6e599c679f-cd/s100x200/8af3acb6d45ec7a128bf2ceefb3ac825c0fbc7db.pnj)
 
 ![image alt](https://64.media.tumblr.com/87431ca9581f9e08b805fcd583d4f903/ac873ae411fb81b7-f8/s100x200/bb5b7b36ca0608cd949c0d65b1690bf017003d57.pnj)
 ![image alt](https://64.media.tumblr.com/78656375d870e8b018d4456a768d9c11/434736037a2c30fc-46/s100x200/d90a553c15ae129bebf8a0495ac127012e7cdf65.pnj)
