@@ -28,15 +28,16 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 
 <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%20_%20MY%20PERSONA%20_%20DNC%F0%9F%9A%AB-stand-padded-ponyplush-4x.png" alt="Sample Image" width="120" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%2C%20SONA%20_RMK%20_DNC%F0%9F%9A%AB%2C%20sign%20Ata-stand-padded-4x%20(2).png" alt="Sample Image" width="100" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-'%20Who%20am%20I_%20'%20%F0%9F%94%A7%20%E2%9C%A7%20_%20DNC%F0%9F%9A%AB-stand-padded-toy7-4x.png" alt="Sample Image" width="120" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Clover%20hunting%20%F0%9F%8D%80%20_%20sign%20Ata-stand-padded-toy450-4x.png" alt="Sample Image" width="115" height="150"> 
 
-ＭＹ ＦＡＶＯＲＩＴＥ ＣＯＬＯＲＳ: wip for some mins
 
-$\normalsize\color{#2555d4}{\textsf{𝙱𝚕𝚞𝚎:}}$ 
+$${\color{#3d4cae} \space ＭＹ \space ＦＡＶＯＲＩＴＥ \space ＣＯＬＯＲＳ: \space}$$
 
-$\normalsize\color{#a11c1c}{\textsf{𝚁𝚎𝚍:}}$
+$\normalsize\color{#2555d4}{\textsf{𝙱𝚕𝚞𝚎:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-'%20In%20my%20dreams%20'%20%E2%9C%93%20me%20%2B%20iwc(_)-stand-padded-ponyplush-4x.png" alt="Sample Image" width="80" height="85">
 
-$\normalsize\color{#54871d}{\textsf{𝙶𝚛𝚎𝚎𝚗:}}$
+$\normalsize\color{#a11c1c}{\textsf{𝚁𝚎𝚍:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Beau's%20%231%20fan%20!!%20_%20me%20IRL%20_%20%E2%99%8F-stand-padded-toy134-4x.png" alt="Sample Image" width="80" height="85">
 
-$\normalsize\color{#442aa5}{\textsf{𝙿𝚞𝚛𝚙𝚕𝚎:}}$
+$\normalsize\color{#54871d}{\textsf{𝙶𝚛𝚎𝚎𝚗:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Clover%20hunting%20%F0%9F%8D%80%20_%20sign%20Ata-stand-padded-toy450-4x.png" alt="Sample Image" width="80" height="85">
+
+$\normalsize\color{#442aa5}{\textsf{𝙿𝚞𝚛𝚙𝚕𝚎:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%2C%20SONA%20_RMK%20_DNC%F0%9F%9A%AB%2C%20sign%20Ata-stand-padded-4x%20(2).png" alt="Sample Image" width="80" height="85">
 
 </details>
 
