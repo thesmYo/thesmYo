@@ -2,7 +2,7 @@
 
 $\normalsize\color{#3d4cae}{\textsf{𝙻𝚒𝚗𝚔𝚜}}$
 
-(a lil wip?) [NEW Straw](https://theyosm.straw.page) | [OLD Straw](https://thesmyo.straw.page/) | [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Guns.lol](https://guns.lol/thesmyo) | [Tumblr](https://www.tumblr.com/unknowery68?source=share)
+(a lil wip?) [NEW Straw](https://theyosm.straw.page) | [OLD Straw](https://thesmyo.straw.page/) | [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Guns.lol](https://guns.lol/thesmyo) | [Tumblr](https://www.tumblr.com/unknowery68?source=share) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
