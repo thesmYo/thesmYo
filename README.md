@@ -10,13 +10,13 @@
 
 
 
-<br /> ![](https://pixels.crd.co/assets/images/gallery62/eeba6c98.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery11/4de7b4a9.gif?v=29416114)
+<br /> ![](https://pixels.crd.co/assets/images/gallery62/eeba6c98.gif?v=29416114)  –   ![](https://64.media.tumblr.com/9b98a4ad8dce89dd408179cdd8d4f650/259445e54e5c3837-e4/s75x75_c1/298b193aa277ed528ad14776eed9b76b011f221f.gifv)
 
 ---
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
-$\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [playlist](https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$) ![profileviews](https://64.media.tumblr.com/9b98a4ad8dce89dd408179cdd8d4f650/259445e54e5c3837-e4/s75x75_c1/298b193aa277ed528ad14776eed9b76b011f221f.gifv)
+$\normalsize\color{#4E4985}{\textsf{my favorite songs I listen to in my}}$ [playlist](https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$) ![](https://pixels.crd.co/assets/images/gallery20/9254fefe.gif?v=29416114)
 
 #
 
