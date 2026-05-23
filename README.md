@@ -131,6 +131,8 @@ $\normalsize\color{#2555d4}{\textsf{𝙱𝚕𝚞𝚎:}}$ <img src="https://githu
 ![image alt](https://64.media.tumblr.com/ed620522da098219f37d8508a1fe6f31/4ee46a5e57e1845b-2e/s100x200/f3876b90b136a95052e3c59037a38a238cfe238e.pnj)
 ![image alt](https://64.media.tumblr.com/ba11e31e534cce9e809bd93294e00af5/4ee46a5e57e1845b-f4/s100x200/b9a8b7cd9f0a5a79b6b344042ea7175da9850822.pnj)
 
+<sub> <br /> $${\color{#7a73c3}{ \space my \space Stamps \space are \space posted \space only \space on}}$$ [Tumblr](https://www.tumblr.com/unknowery68?source=share)
+
 </details>
 
 #
