@@ -1,8 +1,18 @@
-![image alt](https://64.media.tumblr.com/b8ef858c35adbcf41bbaf93baec8e4dc/823ad48636965bea-69/s540x810/44cd4e02cdf6ac21854fe2e81308ee4b487f5638.gifv)
+<div align="center">
+  <img src=https://i.pinimg.com/736x/1f/54/bd/1f54bd712a2f44e75c45474529821ca3.jpg <img width="300" height="280"
+    <div align="center">
 
-$\normalsize\color{#3d4cae}{\textsf{𝙻𝚒𝚗𝚔𝚜}}$
+  
 
-(a lil wip?) [NEW Straw](https://theyosm.straw.page) | [OLD Straw](https://thesmyo.straw.page/) | [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Guns.lol](https://guns.lol/thesmyo) | [Tumblr](https://www.tumblr.com/unknowery68?source=share) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
+<sub> <br /> $\normalsize\color{#3d4cae}{\textsf{𝙻𝚒𝚗𝚔𝚜}}$
+
+[NEW Straw](https://theyosm.straw.page) | [OLD Straw](https://thesmyo.straw.page/) | [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Guns.lol](https://guns.lol/thesmyo) | [Tumblr](https://www.tumblr.com/unknowery68?source=share) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
+
+
+
+<br /> ![](https://pixels.crd.co/assets/images/gallery11/4de7b4a9.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery62/eeba6c98.gif?v=29416114)
+
+---
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
@@ -24,20 +34,14 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs i listen to in my}}$ [play
 
 - INFO: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
 
-<sub>- Skins you may know me as:
+<sub>- <br /> $\normalsize\color{#3d4cae}{\textsf{Skins you may know me as:}}$
 
 <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%20_%20MY%20PERSONA%20_%20DNC%F0%9F%9A%AB-stand-padded-ponyplush-4x.png" alt="Sample Image" width="120" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%2C%20SONA%20_RMK%20_DNC%F0%9F%9A%AB%2C%20sign%20Ata-stand-padded-4x%20(2).png" alt="Sample Image" width="100" height="150"> <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-'%20Who%20am%20I_%20'%20%F0%9F%94%A7%20%E2%9C%A7%20_%20DNC%F0%9F%9A%AB-stand-padded-toy7-4x.png" alt="Sample Image" width="110" height="140">
 
 
-$${\color{#3d4cae} \space ＭＹ \space ＦＡＶＯＲＩＴＥ \space ＣＯＬＯＲＳ: \space}$$
+<sub>- <br /> $${\color{#3d4cae} \space ＭＹ \space ＦＡＶＯＲＩＴＥ \space ＣＯＬＯＲＳ: \space}$$
 
-$\normalsize\color{#2555d4}{\textsf{𝙱𝚕𝚞𝚎:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-'%20In%20my%20dreams%20'%20%E2%9C%93%20me%20%2B%20iwc(_)-stand-padded-ponyplush-4x.png" alt="Sample Image" width="80" height="85">
-
-$\normalsize\color{#a11c1c}{\textsf{𝚁𝚎𝚍:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Beau's%20%231%20fan%20!!%20_%20me%20IRL%20_%20%E2%99%8F-stand-padded-toy134-4x.png" alt="Sample Image" width="80" height="85">
-
-$\normalsize\color{#54871d}{\textsf{𝙶𝚛𝚎𝚎𝚗:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Clover%20hunting%20%F0%9F%8D%80%20_%20sign%20Ata-stand-padded-toy450-4x.png" alt="Sample Image" width="80" height="85">
-
-$\normalsize\color{#442aa5}{\textsf{𝙿𝚞𝚛𝚙𝚕𝚎:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%2C%20SONA%20_RMK%20_DNC%F0%9F%9A%AB%2C%20sign%20Ata-stand-padded-4x%20(2).png" alt="Sample Image" width="80" height="85">
+$\normalsize\color{#2555d4}{\textsf{𝙱𝚕𝚞𝚎:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-'%20In%20my%20dreams%20'%20%E2%9C%93%20me%20%2B%20iwc(_)-stand-padded-ponyplush-4x.png" alt="Sample Image" width="80" height="85"> $\normalsize\color{#a11c1c}{\textsf{𝚁𝚎𝚍:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Beau's%20%231%20fan%20!!%20_%20me%20IRL%20_%20%E2%99%8F-stand-padded-toy134-4x.png" alt="Sample Image" width="80" height="85"> $\normalsize\color{#54871d}{\textsf{𝙶𝚛𝚎𝚎𝚗:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Clover%20hunting%20%F0%9F%8D%80%20_%20sign%20Ata-stand-padded-toy450-4x.png" alt="Sample Image" width="80" height="85"> $\normalsize\color{#442aa5}{\textsf{𝙿𝚞𝚛𝚙𝚕𝚎:}}$ <img src="https://github.com/thesmYo/thesmYo/blob/main/pony-town-Y%C3%96%2C%20SONA%20_RMK%20_DNC%F0%9F%9A%AB%2C%20sign%20Ata-stand-padded-4x%20(2).png" alt="Sample Image" width="80" height="85">
 
 </details>
 
@@ -133,11 +137,8 @@ $\normalsize\color{#442aa5}{\textsf{𝙿𝚞𝚛𝚙𝚕𝚎:}}$ <img src="https
 
 **ɪɴᴛ ᴀɴʏᴛɪᴍᴇ, ɪ'ᴍ ꜱᴏ ʟᴏɴᴇʟʏ ᴀɴᴡ**
 
-![image alt](https://64.media.tumblr.com/11377a6af25ba09091eddff8968378b9/a4c71817eda70ea5-8d/s500x750/996adea46ab50ecb423d387b6eac854b00b9f193.gifv)
+![image alt](https://media1.tenor.com/m/dJCXnfASqLIAAAAC/beau-lego-dreamzzz.gif) <img src=https://i.pinimg.com/736x/25/60/b0/2560b000327704cae31d5524d29a4c82.jpg img width="300" height="280">
 
-![Description](https://media1.tenor.com/m/SzaTzyILocsAAAAC/beau-lego-dreamzzz.gif)
-
-![image alt](https://64.media.tumblr.com/5bdfa850b91d4f9924a67b08de60a4c6/b15d23a765658ea4-ca/s400x600/9f1a8b27c78179302870e016ebf0e9ee946bc138.pnj)
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
