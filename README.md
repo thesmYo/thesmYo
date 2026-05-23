@@ -4,7 +4,7 @@
 
   
 
-<sub> <br /> $\normalsize\color{#3d4cae}{\textsf{𝙻𝚒𝚗𝚔𝚜}}$
+<br /> $\normalsize\color{#3d4cae}{\textsf{𝙻𝚒𝚗𝚔𝚜}}$
 
 [NEW Straw](https://theyosm.straw.page) | [OLD Straw](https://thesmyo.straw.page/) | [Ata](https://thesmyo.atabook.org/) | [Rentry](https://rentry.co/ucqzpchh) | [Guns.lol](https://guns.lol/thesmyo) | [Tumblr](https://www.tumblr.com/unknowery68?source=share) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
 
