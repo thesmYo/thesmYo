@@ -18,7 +18,7 @@
 
 $\normalsize\color{#4E4985}{\textsf{my favorite songs I listen to in my}}$ [playlist](https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$) ![](https://pixels.crd.co/assets/images/gallery20/9254fefe.gif?v=29416114)
 
-#
+---
 
 <details>
 <summary> $${\color{#3d4cae}  \space ＡＢＯＵＴ \space ＭＥ： \space }$$ </summary>
@@ -103,6 +103,8 @@ $\normalsize\color{#2555d4}{\textsf{𝙱𝚕𝚞𝚎:}}$ <img src="https://githu
 
 </details>
 
+#
+
 <details>
 <summary> $${\color{#7a73c3} \space 𝙼𝚢 \space 𝚖𝚊𝚍𝚎 \space 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 \space / \space 𝚂𝚝𝚊𝚖𝚙𝚜 \space ↓ \space }$$ </summary>
 
@@ -135,7 +137,7 @@ $\normalsize\color{#2555d4}{\textsf{𝙱𝚕𝚞𝚎:}}$ <img src="https://githu
 
 </details>
 
-#
+---
 
 **ɪɴᴛ ᴀɴʏᴛɪᴍᴇ, ɪ'ᴍ ꜱᴏ ʟᴏɴᴇʟʏ ᴀɴᴡ**
 
