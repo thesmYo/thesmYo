@@ -32,7 +32,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs I listen to in my}}$ [play
 
 - I've hosted on pony town: Guess the cosplay, Find the skin and Fashion roulette → I deleted the skin what with I hosted fashion roulette but hint: it was undertale character...
 
-- INFO: I'm often in the game just to be offtab so i recommend w2i to interact, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
+- INFO: I'm often in the game just to be offtab so i recommend w2i, but I often do check pt when I have the time ![image alt](https://pixels.crd.co/assets/images/gallery58/1961c1c3.gif?v=29416114)
 
 <sub>- <br /> $\normalsize\color{#3d4cae}{\textsf{Skins you may know me as:}}$
 
