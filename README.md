@@ -20,7 +20,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs I listen to in my}}$ [play
 ---
 
 <details>
-<summary> $${\color{#3d4cae}  \space ＡＢＯＵＴ \space ＭＥ： \space }$$ </summary>
+<summary> $${\color{#3d4cae}  \space ＡＢＯＵＴ \space ＭＥ \space \space ↓ \space }$$ </summary>
 
 ![image alt](https://64.media.tumblr.com/975c356c4a61db2451aa0037479ff71b/9c64694a9403955f-28/s100x200/6a7b165f8494e91cb7fe28c6dce75b783857fb43.pnj)
 ![image alt](https://64.media.tumblr.com/08336a3acb01e6c400f7f518fa2e0b5f/4e0adfecf4c80568-ff/s100x200/efeefa616e25d822999c8fb20e2e6a132c5116c3.pnj)
@@ -107,7 +107,7 @@ $\normalsize\color{#2555d4}{\textsf{𝙱𝚕𝚞𝚎:}}$ <img src="https://githu
 #
 
 <details>
-<summary> $${\color{#3d4cae} \space 𝙼𝚢 \space 𝚖𝚊𝚍𝚎 \space 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 \space / \space 𝚂𝚝𝚊𝚖𝚙𝚜 \space ↓ \space }$$ </summary>
+<summary> $${\color{#3d4cae} \space 𝚜𝚘𝚖𝚎 \space 𝚘𝚏 \space 𝚖𝚢 \space 𝚖𝚊𝚍𝚎 \space 𝚂𝚝𝚊𝚖𝚙𝚜 \space ↓ \space }$$ </summary>
 
 ![image alt](https://64.media.tumblr.com/f9a18813e5cc64c21b1b6c440480ee89/4afb63e450868104-78/s100x200/b282cd6618871e950e3c091dc6be74d206f2385f.pnj)
 ![image alt](https://64.media.tumblr.com/b177e1a24638fe4f6911c2b2369e5dac/8a1eee0c9074a435-32/s100x200/eec43520f169d8480389151da6eb3522a8df7502.gifv)
