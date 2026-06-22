@@ -6,7 +6,7 @@
 
 <br /> $\normalsize\color{#3d4cae}{\textsf{𝙻𝚒𝚗𝚔𝚜}}$
 
-[NEWEST Straw (for more info)](https://theyosm.straw.page) | [OLD Straw (for pt)](https://thesmyo.straw.page/) | [Ata](https://thesmyo.atabook.org/) | [Guns.lol](https://guns.lol/thesmyo) | [Tumblr](https://www.tumblr.com/unknowery68?source=share)
+[NEWEST Straw (for more info)](https://skalestb.straw.page/) | [OLDEST Straw (for pt)](https://thesmyo.straw.page/) | [Ata](https://thesmyo.atabook.org/) | [Guns.lol](https://guns.lol/thesmyo) | [Tumblr](https://www.tumblr.com/unknowery68?source=share)
 
 
 <br /> ![](https://pixels.crd.co/assets/images/gallery62/eeba6c98.gif?v=29416114)  –   ![](https://64.media.tumblr.com/9b98a4ad8dce89dd408179cdd8d4f650/259445e54e5c3837-e4/s75x75_c1/298b193aa277ed528ad14776eed9b76b011f221f.gifv)
