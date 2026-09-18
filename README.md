@@ -26,6 +26,7 @@ $\normalsize\color{#4E4985}{\textsf{my favorite songs I listen to in my}}$ [play
 ![image alt](https://64.media.tumblr.com/08336a3acb01e6c400f7f518fa2e0b5f/4e0adfecf4c80568-ff/s100x200/efeefa616e25d822999c8fb20e2e6a132c5116c3.pnj)
 ![image alt](https://github.com/thesmYo/thesmYo/blob/main/finnishflag.png)
 ![image alt](https://adriansblinkiecollection.neocities.org/stamps/b2.gif)
+![image alt](https://private-user-images.githubusercontent.com/93057109/585568193-04b486de-017c-44db-afd2-a5348002421a.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODk3NDQwNDMsIm5iZiI6MTc4OTc0Mzc0MywicGF0aCI6Ii85MzA1NzEwOS81ODU1NjgxOTMtMDRiNDg2ZGUtMDE3Yy00NGRiLWFmZDItYTUzNDgwMDI0MjFhLmdpZj9YLUFtei1BbGdvcml0aG09QVdTNC1ITUFDLVNIQTI1NiZYLUFtei1DcmVkZW50aWFsPUFLSUFWQ09EWUxTQTUzUFFLNFpBJTJGMjAyNjA5MTglMkZ1cy1lYXN0LTElMkZzMyUyRmF3czRfcmVxdWVzdCZYLUFtei1EYXRlPTIwMjYwOTE4VDE1MDIyM1omWC1BbXotRXhwaXJlcz0zMDAmWC1BbXotU2lnbmF0dXJlPTBlMjZkNWU2ZWZlM2RiN2M2MmUwMDQ1YWEyYmNlOWE1YjM0NDA0NDkwYzJiODJmNmIxNjU4NGE1OTUxZjRiNmImWC1BbXotU2lnbmVkSGVhZGVycz1ob3N0JnJlc3BvbnNlLWNvbnRlbnQtdHlwZT1pbWFnZSUyRmdpZiJ9.7iFgM1y4JdDvF8dcwzHqmJR4I8f29whKagCyjIHu8s4)
 
 - You may know me as my persona, Yö. I have made Lego edits on [Tiktok](https://www.tiktok.com/@skalesisthebff). Or as Night Night Because of my [Patreon](https://www.patreon.com/profile/creators?u=79315220) which I used on my skins on pony town, before I changed to Github.
 
