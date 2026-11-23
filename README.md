@@ -13,6 +13,10 @@
 
 ---
 
+<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=6tef244arpgh8lxwie6m417qc">
+  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=6tef244arpgh8lxwie6m417qc" alt="Data Card for Spotify">
+</a>
+
 $\normalsize\color{#4E4985}{\textsf{my favorite songs I listen to in my}}$ [playlist](https://open.spotify.com/playlist/1J9ODBEF0ksBUvWtU0vqxz?si=b22e3e01f98749ec}}$) ![](https://pixels.crd.co/assets/images/gallery20/9254fefe.gif?v=29416114)
 
 ---
@@ -150,10 +154,6 @@ alt="Sample Image" width="80" height="85">
 **ɪɴᴛ ᴀɴʏᴛɪᴍᴇ, ɪ'ᴍ ꜱᴏ ʟᴏɴᴇʟʏ ᴀɴᴡ**
 
 ![image alt](https://media1.tenor.com/m/dJCXnfASqLIAAAAC/beau-lego-dreamzzz.gif) <img src=https://i.pinimg.com/736x/25/60/b0/2560b000327704cae31d5524d29a4c82.jpg img width="300" height="280">
-
-<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=6tef244arpgh8lxwie6m417qc">
-  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=6tef244arpgh8lxwie6m417qc" alt="Data Card for Spotify">
-</a>
 
 <!--
 **thesmYo/thesmYo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
